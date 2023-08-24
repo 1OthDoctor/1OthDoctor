@@ -1,5 +1,14 @@
-- Hiesies I'm wren / nika / luff + a thousand other fucking names reach me on discord if u wanna chat -> gearfiveluffy 
-- [rentry : 3 ](https://rentry.co/freewillincarnate)
+- RENTRY MASTER LIST
+- [ABOUT ME](https://rentry.co/CAPITAL-VICES)
+- [SOURCELIST](https://rentry.co/Lupining)
+- [INTERESTS](https://rentry.co/zolusional)
+- THEMES...
+- [PERONA](https://rentry.co/GHOSTPRINCESSPERONA)
+- [MELON](https://rentry.co/REVENGEOFTHELOVEFAILURE) 
+- PDA...
+- [MOON](https://rentry.co/allamialuna)
+- [SILVER](https://rentry.co/precious-metals) ([GOLD](https://rentry.co/johtochamp) MADE THIS ONE!)
+  
   
 
 <!---
